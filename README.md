@@ -2,3 +2,4 @@ HI GUYS!! i am chilling in this game PLS do not do 18+ stuff. so i could busy to
 
 ![Funny cat](https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif)
 also my favourite is tqbf Renard and everything .
+Only github person add me!!-ponytown
