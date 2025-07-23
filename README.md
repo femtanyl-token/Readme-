@@ -1,15 +1,16 @@
- ouhh hi Yall i don't know what im doing here c: 
+![1000010460](https://github.com/user-attachments/assets/e9b00791-964b-4e84-85d5-1eae344910c2)
+wassup !!  call me catty 
+
+i must end this 
+
+bye
 
 
+<img width="1280" height="1280" alt="1000010465" src="https://github.com/user-attachments/assets/c30d1bf9-c63d-49be-9015-8190f9f02c6e" />
 
 
-I LIKE WALKING!! yay idk i love looking at my ppl   
+*such a neutral sneaky 😔*
+idk .
 
 
-
-*bye have nice day.*
-
-
-
-
-![Funny cat](https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif)
+![1000010466](https://github.com/user-attachments/assets/b398c79d-e5ed-4077-9879-db3aaa4d3273)
